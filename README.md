@@ -1,0 +1,2 @@
+# hamza
+Mavi tik istiyorum
